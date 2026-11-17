@@ -11,3 +11,11 @@ A student club for learning photography through short workshops, campus photo wa
 ## How to join
 
 Come to the next club introduction session and bring a phone or camera. New members can start by taking one photo that captures a detail of campus life and sharing it during the group critique.
+
+## First photo walk
+
+1. Meet at the campus library entrance for a short briefing on framing.
+2. Spend 30 minutes photographing light, patterns, and reflections around campus.
+3. Choose two images and explain one framing decision during the group critique.
+
+Ask permission before photographing someone or sharing an identifiable portrait.
